@@ -4,7 +4,7 @@
 
 ---
 
-I was born **[1025km][1]** away from Brussels. I came in Belgium 7 years ago because of fries, friends and bears ( kinda disapointed about theses ones, have yet to see a wild one, friends told me it was a pronunciation issue).
+I was born **[1025km][1]** away from Brussels. I came in Belgium 7 years ago because of fries, friends and bears ( kinda disapointed about theses ones, have yet to see a wild one, friends told me it was a syntaxe issue).
 <br>
 I read a lot of fiction, do rock climbing in the week-end when there's a bit of sun, so twice a year since 7 year, recently picked up leather working. And I got into Larp before this whole zombie apocalypse thing.
 <br>
