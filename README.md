@@ -59,9 +59,11 @@ The three things I value the most to work as a team are:
 
 ---
 *Enjoy my Favorite gif :*
+<br>
 ![Little Emu](https://thumbs.gfycat.com/AridAlienatedBaldeagle.webp)
 
 *And a bonus one because, Otters! :*
+<br>
 ![Otter!!](https://media1.tenor.com/images/422c9ab28be8dd24d7d6129bbfe67c36/tenor.gif?itemid=3546587)
 
 
