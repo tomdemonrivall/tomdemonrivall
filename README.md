@@ -34,6 +34,7 @@ The three things I like the most in this universe are :
 
 <br>
 <br>
+
 ### **The Final goals:**
 
 As a developer at the end of the Becode bootcamp I want to be able to fully be a part of the IT world, I just put a foot in it, and there's so much I don't know. I want to learn a set of competences with which I will be able to find works I actually enjoy doing, and people who will pay me for doing it. For now I enjoy learning new stuff, I hope at the end of the 7 month I still will.
